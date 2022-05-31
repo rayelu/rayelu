@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rayane
+- 👋 Hi, I’m @rayeluiz
 - 👀 I’m interested in, fazer jogos
 - 🌱 I’m currently learning,produzir jogos
 - 💞️ I’m looking to collaborate on ...
